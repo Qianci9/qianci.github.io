@@ -14,7 +14,7 @@ Experience
 ----------
  
  
- Languages
+Languages
 ----------
 English (Fluent)
 Mandarin (Native)
